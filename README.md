@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @kiranmogal
+- 👋 Hi, I’m @kiranmgl
 - 📫 To reach me e-mail @ mogalkiransep3@gmail.com
 
 <!---
